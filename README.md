@@ -1,3 +1,3 @@
-Emanuel Sorra
-Antonjo Mullahaj
+Emanuel Sorra -
+Antonjo Mullahaj -
 Denaldo Hajdini
